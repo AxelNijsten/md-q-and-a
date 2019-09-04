@@ -20,3 +20,4 @@ CSGO (korneel)
 Hoe laat is het?
 
 
+Vier uur. ~En ik zal dit gedeelte strikethrough maken om het nog speciaal te houden.~ - Sean
