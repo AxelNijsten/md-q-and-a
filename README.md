@@ -9,3 +9,5 @@ Bold
 
 **keigoed!**
 favourite day of the week? in **bold** (Luna)
+
+**Friday-Sunday** Cats or dogs ? |striketrough| (Laurens)
