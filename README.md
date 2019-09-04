@@ -12,6 +12,11 @@ favourite day of the week? in **bold** (Luna)
 
 **Friday-Sunday** Cats or dogs ? |striketrough| (Laurens)
 
-d̶o̶g̶ (kajetan) favorite game ?
+d̶o̶g̶ (kajetan) 
+
+favorite game ?
+CSGO (korneel)
+
+Hoe laat is het?
 
 
